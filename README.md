@@ -8,4 +8,4 @@ I'm like shinji from evangelion
 
 Have some basic skills in python and c++
 
-![That's literally me](https://Swieety.is-cute-af.xyz/CDjMBBhHKWrB)
+![That's literally me](https://swieety.is-cute-af.xyz/content/cdn/CDjMBBhHKWrB.png)
